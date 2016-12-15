@@ -1,0 +1,1 @@
+# 0.5w_Solar_Panel_55x70
